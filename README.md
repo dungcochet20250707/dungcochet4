@@ -17,4 +17,4 @@
 
 当然，在寻找免费资源时也要特别注意安全问题。建议选择访问量高、评价好的平台，避免进入带有强制跳转或恶意广告的网站。配合使用广告拦截插件和隐私浏览模式，可以进一步提升观影体验。
 
-<span style="display:none;">[Canonical link](）</span>
+<span style="display:none;">[Canonical link](https://github.com/dungcochet20250707/dungcochet4 ）</span>
